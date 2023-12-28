@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @monkeyDkadi
-- 👀 I’m a student in K.V
-- 🌱 I’m currently learning anything i can
+- 👀 I’m a K.V student.
+- 🌱 I’m currently learning anything I can.
 - 💞️ I’m looking into your eyes.
 - 📫 I hate science
 
